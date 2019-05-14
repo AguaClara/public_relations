@@ -10,3 +10,7 @@ Public Relations creates and manages a consistent brand image that communicate A
 [Fall 2018 Final Presentation](https://docs.google.com/presentation/d/1fHH9CtiY1F4bSuquySCU6cFpu54iBJpLU0rsIPtMVes/edit?usp=sharing)
 
 [Spring 2019 Symposium](https://docs.google.com/presentation/d/1wmhDJXykSZTu-5_61i2VxTSpPTciC_4ZSG6j_KOKmtw/edit?usp=sharing)
+
+[Spring 2019 Final Presentation Video](https://www.youtube.com/watch?v=4sfoKzkZ8tA&list=PLhsGtpY8ipdZL4lExJA8KC0zCkaxwfs8R&index=19)
+
+[Spring 2019 Final Presentation Slides](https://docs.google.com/presentation/d/1aQ4mD0MuH-wjbXiDS332j2f5WUdo6DBuAN-KvBZsjNs/edit#slide=id.g57161f5e08_0_0)
