@@ -1,9 +1,9 @@
 # Public-Relations
 Public Relations of AguaClara focuses on increasing overall exposure of the project team within Cornell and the global community.
 
-Public Relations creates and manages a consistent brand image that communicate AguaClara Cornell’s innovative and sustainable ideals. Internal team pride and campus exposure is increased by designing team merchandise, maintaining regular social media presence, and overseeing recruitment materials. Press kits, brand books, and templates for promotional materials ensure a uniform message of AguaClara's mission is promoted to external sources and maintained within the team.
+Public Relations creates and manages a consistent brand image that communicate AguaClara Cornell’s innovative and sustainable ideals. Internal team pride and campus exposure is increased by designing team merchandise, maintaining regular social media presence, and overseeing recruitment materials. Press kits, brand books, and templates for promotional materials ensure a uniform message of AguaClara's mission is promoted to external sources and maintained within the team. Additonally, alumni outreach is emphasized through monthly newsletters and emails.
 
-Subteam Lead: Diya Tanwar(dt422@cornell.edu)
+Subteam Lead: Nessa Sandoval(vss32@cornell.edu)
 
 [Spring 2018 Symposium](https://docs.google.com/presentation/d/1xSMuG-DKSeWRSHQlxlnYcS4tlDcjJRF_OSa3xwF2sXc/edit#slide=id.g34e3458c17_1_10) 
 
